@@ -9,7 +9,7 @@ Every day, the billion features waiting to be built, let us help your.
 * Blockchain
 * Cloud Computing
 * IT partnership
-* Mobile Banking
+* Mobile Banking / FinTech
 * Super App
 
 [More](https://snapdev.notion.site/snapdev-63465b150674465983c90577f1cdc9ff?pvs=4)
