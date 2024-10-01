@@ -1,6 +1,6 @@
 Every day, the billion features waiting to be built, let us help your.
 
-<a href="mailto:snapdevservices@gmail.com">snapdevservices@gmail.com</a>
+<a href="mailto:dakiafranck@gmail.com">dakiafranck@gmail.com</a>
 
 ### Our services:
 
