@@ -12,4 +12,4 @@ Every day, the billion features waiting to be built, let us help your.
 * Mobile Banking / FinTech
 * Super App
 
-[More](https://papacandco.notion.site/snapdev-63465b150674465983c90577f1cdc9ff?pvs=4)
+[More...](https://papacandco.notion.site/snapdev-63465b150674465983c90577f1cdc9ff?pvs=4)
